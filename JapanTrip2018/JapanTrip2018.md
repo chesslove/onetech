@@ -12,3 +12,18 @@ Sáng chủ nhật, đoàn gồm Huy, Sơn, Việt, Vi (vợ Việt) và bé Bô
 
 Sau khi check-in và làm thủ tục xong, cả đoàn tranh thủ ăn sáng tại một tiệm cà phê trang trí khá bắt mắt gần khu vực sleeping và có khu trò chơi cho trẻ em.
 
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/20181104_061517.jpg" width="600"/>
+
+```
+Shingeki no Viet-san
+```
+
+Công ty lựa chọn hãng hàng không nổi tiếng Japan Airlines vì có chất lượng dịch vụ tốt và chuyên nghiệp. Trên máy bay có thể ăn uống miễn phí, có màn hình dành riêng cho mỗi ghế để cập nhật quá trình bay và thỏa sức coi phim, nghe nhạc.
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/20181104_091955.jpg" width="600"/>
+
+```
+Bữa ăn nhẹ ngon hết xẩy
+```
+
+Sau hơn 7 tiếng bay, cả đoàn có mặt tại sân bay Narita, Tokyo. 
