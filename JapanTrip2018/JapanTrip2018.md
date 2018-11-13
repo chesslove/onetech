@@ -38,9 +38,15 @@ Cả đoàn nhanh chóng hoàn tất thủ tục hải quan, nhận hành lí v�
 Một góc sân bay Narita, để ý sẽ thấy các công trình ở Nhật đều có trần nhà thiết kế rất bắt mắt
 ```
 
-<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/20181104_061517" width="600"/>
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/20181104_163742_small.jpg" width="600"/>
 
 ```
-Một góc sân bay Narita, để ý sẽ thấy các công trình ở Nhật đều có trần nhà thiết kế rất bắt mắt
+Lần đầu làm chuyện ấy
+```
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/20181104_162739.jpg" width="600"/>
+
+```
+Vé xe buýt
 ```
 
