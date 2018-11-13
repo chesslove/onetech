@@ -26,4 +26,21 @@ Công ty lựa chọn hãng hàng không nổi tiếng Japan Airlines vì có ch
 Bữa ăn nhẹ ngon hết xẩy
 ```
 
-Sau hơn 7 tiếng bay, cả đoàn có mặt tại sân bay Narita, Tokyo. 
+Sau hơn 7 tiếng bay, cả đoàn có mặt tại sân bay Narita, Tokyo. Do sân bay quá rộng, cả đoàn còn đang lóng ngóng thì bất ngờ một bác người Nhật chạy xe chuyên dụng tới hỏi và sẵn sàng chở tới nơi làm thủ tục, ai cũng hết sức cảm động vì sự hiếu khách và nhiệt tình của bác.
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/20181104_153918.jpg" width="600"/>
+
+Cả đoàn nhanh chóng hoàn tất thủ tục hải quan, nhận hành lí và mua vé xe buýt tới Shiki thuộc quận Saitama nơi hội ngộ cùng anh Tuấn.
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/20181104_163421.jpg" width="600"/>
+
+```
+Một góc sân bay Narita, để ý sẽ thấy các công trình ở Nhật đều có trần nhà thiết kế rất bắt mắt
+```
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/20181104_061517" width="600"/>
+
+```
+Một góc sân bay Narita, để ý sẽ thấy các công trình ở Nhật đều có trần nhà thiết kế rất bắt mắt
+```
+
