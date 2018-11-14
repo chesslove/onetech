@@ -77,3 +77,51 @@ Vui chơi không quên nhiệm vụ, Weekly Report hàng tuần
 ```
 
 Ăn sáng xong, anh Tuấn dẫn cả đoàn đến với địa điểm đầu tiên trong chuyến đi, triển lãm JIMTOF 2018 tổ chức tại Tokyo Big Sight. Sự kiện kéo dài 6 ngày, quy tụ hàng trăm nhãn hiệu nổi tiếng của Nhật về máy móc và công nghệ. Khu triển lãm chật kín người, cả đoàn choáng ngợp với không khí tấp nập, đồng thời thán phục cách tổ chức sự kiện hết sức quy mô và chuyên nghiệp.
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/20181105_084914.jpg" width="600"/>
+
+```
+Bến tàu điện với biển quảng cáo ở khắp mọi nơi
+```
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0014.JPG" width="600"/>
+
+```
+Trên chuyến tàu không người lái
+```
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0018.JPG" width="600"/>
+
+```
+Cưa khổng lồ
+```
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0019.JPG" width="600"/>
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0021.JPG" width="600"/>
+
+```
+Trước cổng Tokyo Big Sight
+```
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0025.JPG" width="600"/>
+
+```
+Hòa mình vào không khí hối hả của sự kiện
+```
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0032.JPG" width="600"/>
+
+```
+Tham dự các buổi seminar công nghệ
+```
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0038.JPG" width="600"/>
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0041.JPG" width="600"/>
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0043.JPG" width="600"/>
+
+```
+Các chi tiết, thiết bị được thực hiện rất tinh xảo
+```
