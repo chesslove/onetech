@@ -152,3 +152,4 @@ Thưởng thức mì cay Nhật
 Hòa mình vào thiên nhiên, bao nhiêu stress xả hết để dòng sông cuốn trôi đi
 ```
 
+Chia tay anh Kawamoto
