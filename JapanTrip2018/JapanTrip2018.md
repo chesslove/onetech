@@ -182,10 +182,33 @@ Gặp lại anh Kawamoto ở một quán ăn gà ta gần đó, trong không gia
 
 Đến 11h tối, cả đoàn trở về nhà nghỉ ngơi. Ngày đầu tiên trôi qua nhanh chóng, đôi chân lâu ngày không đi nhiều đã trở nên mỏi mệt, nhưng có đi nhiều mới thấy và học được nhiều điều như vậy.
 
-Ngày thứ 2 của chuyến đi bắt đầu bằng việc cả đoàn dậy rất sớm cùng anh Tuấn tới văn phòng của công ty bên Nhật ở Tokyo Ami Hall.
+Ngày thứ 2 của chuyến đi bắt đầu bằng việc cả đoàn dậy rất sớm cùng anh Tuấn tới [văn phòng của công ty bên Nhật](https://onetech.jp/) ở Tokyo Ami Hall.
 
 <img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/20181106_105736.jpg" width="600"/>
 
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0111.JPG" width="600"/>
+
 Nhìn các anh làm việc chăm chỉ, mọi người đều tự nhủ rằng mình cần phải cố gắng nhiều hơn nữa.
 
-Tới 10 giờ, cả đoàn ghé vào Big Camera, một chuỗi cửa hàng chuyên bán đồ gia đình và hàng điện tử chất lượng cao. 
+Tới 11 giờ, cả đoàn ghé vào Bic Camera, một chuỗi cửa hàng nổi tiếng chuyên bán đồ gia đình và hàng điện tử chất lượng cao. Bé Bông đã chọn được một búp bê rất dễ thương ở đây. Mới chỉ đi được một nửa đã hết 3 tiếng, lúc này anh Tuấn đã họp xong và dẫn mọi người tới tiệm [Bánh Mì Bà Ba](https://www.facebook.com/banhmibabaJapan/), tiệm bán bánh mì Việt Nam độc nhất ở Tokyo. Bánh mì ở đây ngon hết xẩy, vỏ bánh xốp và dầy, chả lụa, đồ chua, pate,... đều giữ nguyên bản sắc và hương vị Việt Nam. Mỗi người không ngại ăn đến 2 cái nhờ các phiếu coupon của anh Tuấn.
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0112.JPG" width="600"/>
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0119.JPG" width="600"/>
+
+```
+Những cái rổ tre, áo bà ba, khăn rằn đặc trưng Nam Bộ
+```
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0128.JPG" width="600"/>
+
+```
+Trên tay cái bánh mì còn nóng hổi
+```
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0115.JPG" width="600"/>
+
+```
+Cùng tri ân những người đã góp công mở quán
+```
+
