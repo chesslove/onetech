@@ -128,3 +128,43 @@ Các chi tiết, thiết bị được thực hiện rất tinh xảo
 
 Đến trưa, cả đoàn dừng chân tại ODAIBA, một điạ điểm mua sắm rất thu hút khách du lịch. Mọi người ăn trưa rồi sau đó dạo vòng quanh, chiêm ngưỡng cảnh quan bắt mắt ở đây.
 
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0083.JPG" width="600"/>
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/20181105_125244.jpg" width="600"/>
+
+```
+Thưởng thức mì cay Nhật
+```
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0080.JPG" width="600"/>
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0068.JPG" width="600"/>
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0021.JPG" width="600"/>
+
+```
+Trước cổng Tokyo Big Sight
+```
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0025.JPG" width="600"/>
+
+```
+Hòa mình vào không khí hối hả của sự kiện
+```
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0032.JPG" width="600"/>
+
+```
+Tham dự các buổi seminar công nghệ
+```
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0038.JPG" width="600"/>
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0041.JPG" width="600"/>
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0043.JPG" width="600"/>
+
+```
+Các chi tiết, thiết bị được thực hiện rất tinh xảo
+```
+
