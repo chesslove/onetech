@@ -62,3 +62,18 @@ Anh Tuấn chở cả đoàn về nhà anh, nơi mọi người sẽ cùng sinh 
 Cuộc gọp đêm
 ```
 
+Sáng thứ 2, tinh thần thoải mái nên mọi người dậy từ rất sớm.
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0002.jpg" width="600"/>
+
+```
+Một góc trường cấp hai view từ cửa sổ
+```
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0003.JPG" width="600"/>
+
+```
+Vui chơi không quên nhiệm vụ, Weekly Report hàng tuần
+```
+
+Ăn sáng xong, anh Tuấn dẫn cả đoàn đến với địa điểm đầu tiên trong chuyến đi, triển lãm JIMTOF 2018 tổ chức tại Tokyo Big Sight. Sự kiện kéo dài 6 ngày, quy tụ hàng trăm nhãn hiệu nổi tiếng của Nhật về máy móc và công nghệ. Khu triển lãm chật kín người, cả đoàn choáng ngợp với không khí tấp nập, đồng thời thán phục cách tổ chức sự kiện hết sức quy mô và chuyên nghiệp.
