@@ -76,7 +76,7 @@ Một góc trường cấp hai view từ cửa sổ
 Vui chơi không quên nhiệm vụ, Weekly Report hàng tuần
 ```
 
-Ăn sáng xong, anh Tuấn dẫn cả đoàn đến với địa điểm đầu tiên trong chuyến đi, triển lãm JIMTOF 2018 tổ chức tại Tokyo Big Sight. Sự kiện kéo dài 6 ngày, quy tụ hàng trăm nhãn hiệu nổi tiếng của Nhật về máy móc và công nghệ. Khu triển lãm chật kín người, cả đoàn choáng ngợp với không khí tấp nập, đồng thời thán phục cách tổ chức sự kiện hết sức quy mô và chuyên nghiệp.
+Ăn sáng xong, anh Tuấn dẫn cả đoàn đến với địa điểm đầu tiên trong chuyến đi, triển lãm JIMTOF 2018 tổ chức tại Tokyo Big Sight. Anh Kawamoto đã đợi sẵn ở đó cùng với những tấm vé mời được khách hàng tặng. Sự kiện kéo dài 6 ngày, quy tụ hàng trăm nhãn hiệu nổi tiếng của Nhật về máy móc và công nghệ. Khu triển lãm chật kín người, cả đoàn choáng ngợp với không khí tấp nập, đồng thời thán phục cách tổ chức sự kiện hết sức quy mô và chuyên nghiệp. 
 
 <img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/20181105_084914.jpg" width="600"/>
 
@@ -125,3 +125,6 @@ Tham dự các buổi seminar công nghệ
 ```
 Các chi tiết, thiết bị được thực hiện rất tinh xảo
 ```
+
+Đến trưa, cả đoàn dừng chân tại ODAIBA, một điạ điểm mua sắm rất thu hút khách du lịch. Mọi người ăn trưa rồi sau đó dạo vòng quanh, chiêm ngưỡng cảnh quan bắt mắt ở đây.
+
