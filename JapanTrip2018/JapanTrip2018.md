@@ -26,7 +26,7 @@ Công ty lựa chọn hãng hàng không nổi tiếng Japan Airlines vì có ch
 Bữa ăn nhẹ ngon hết xẩy
 ```
 
-Sau hơn 7 tiếng bay, cả đoàn có mặt tại sân bay Narita, Tokyo. Do sân bay quá rộng, cả đoàn còn đang lóng ngóng thì bất ngờ một bác người Nhật chạy xe chuyên dụng tới hỏi và sẵn sàng chở tới nơi làm thủ tục, ai cũng hết sức cảm động vì sự hiếu khách và nhiệt tình của bác.
+Sau hơn 7 tiếng bay, cả đoàn có mặt tại sân bay Narita, Tokyo. Tháng 11 thời tiết khá là mát mẻ và dễ chịu. Do sân bay quá rộng, cả đoàn còn đang lóng ngóng thì bất ngờ một bác người Nhật chạy xe chuyên dụng tới hỏi và sẵn sàng chở tới nơi làm thủ tục, ai cũng hết sức cảm động vì sự hiếu khách và nhiệt tình của bác.
 
 <img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/20181104_153918.jpg" width="600"/>
 
@@ -48,5 +48,17 @@ Lần đầu làm chuyện ấy
 
 ```
 Vé xe buýt
+```
+
+Phải hơn 3 tiếng xe buýt mới tới được Shiki, cả đoàn lúc này đã khá là mệt mỏi. Anh Tuấn động viên tinh thần mọi người bằng cách chở đi ăn sushi. Thực đơn quán có đủ loại sushi, ramen, soba rất hấp dẫn. Thực khách chỉ cần nhấn nút chọn món, chưa đầy 1 phút sau băng chuyền tự động đưa món đến tận bàn, rất tiện lợi.
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/20181104_202255.jpg" width="600"/>
+
+Anh Tuấn chở cả đoàn về nhà anh, nơi mọi người sẽ cùng sinh hoạt và làm việc trong suốt chuyến đi. Nhà anh nằm cạnh sông Yanasegawa, gần ga tàu, trường học, siêu thị, ... nên rất tiện lợi. 
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/20181104_223355.jpg" width="600"/>
+
+```
+Cuộc gọp đêm
 ```
 
