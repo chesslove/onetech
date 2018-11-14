@@ -152,4 +152,35 @@ Thưởng thức mì cay Nhật
 Hòa mình vào thiên nhiên, bao nhiêu stress xả hết để dòng sông cuốn trôi đi
 ```
 
-Chia tay anh Kawamoto
+Chia tay anh Kawamoto, cả đoàn tới Shibuya, khu phố sầm uất bậc nhất Tokyo, nơi mọi người được trải nghiệm sự náo nhiệt và hối hả của thành phố hiện đại.
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0092.JPG" width="600"/>
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0100.JPG" width="600"/>
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0104.JPG" width="600"/>
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0085.JPG" width="600"/>
+
+```
+Đầu tàu xe lửa đầu tiên của Nhật
+```
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0099.JPG" width="600"/>
+
+```
+Chú chó nổi tiếng Hachiko
+```
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0087.JPG" width="600"/>
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0095.JPG" width="600"/>
+
+<img src="https://raw.githubusercontent.com/chesslove/onetech/master/JapanTrip2018/DSC_0102.JPG" width="600"/>
+
+Gặp lại anh Kawamoto ở một quán ăn gà ta gần đó, trong không gian ấm úng, mọi người cùng nhau tán dóc, hỏi han và chia sẻ những bài học bổ ích trong cuộc sống, cùng nâng cốc chúc mừng cho cuộc triển lãm thành công mĩ mãn.
+
+Đến 11h tối, cả đoàn trở về nhà nghỉ ngơi. Ngày đầu tiên trôi qua nhanh chóng, đôi chân lâu ngày không đi nhiều đã trở nên mỏi mệt, nhưng có đi nhiều mới thấy và học được nhiều điều như vậy.
+
+
+
