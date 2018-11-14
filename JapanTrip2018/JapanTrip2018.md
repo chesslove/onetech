@@ -182,5 +182,4 @@ Gặp lại anh Kawamoto ở một quán ăn gà ta gần đó, trong không gia
 
 Đến 11h tối, cả đoàn trở về nhà nghỉ ngơi. Ngày đầu tiên trôi qua nhanh chóng, đôi chân lâu ngày không đi nhiều đã trở nên mỏi mệt, nhưng có đi nhiều mới thấy và học được nhiều điều như vậy.
 
-
-
+Ngày thứ 2 của chuyến đi bắt đầu bằng việc cả đoàn dậy rất sớm cùng anh Tuấn tới văn phòng của công ty bên Nhật tại 〒150-0002 東京都渋谷区渋谷1-1-3 ｱﾐｰﾎｰﾙ5F 511
